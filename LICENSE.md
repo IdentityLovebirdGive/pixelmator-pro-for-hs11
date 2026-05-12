@@ -1,4 +1,4 @@
-# 
+# Pixelmator Pro for macOS ultimate Panel: blend modes & export presets is the best Pixelmator Pro for macOS panel, featuring blend modes and export presets. Safe, efficient, and
 
 
 
